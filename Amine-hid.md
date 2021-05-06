@@ -1,0 +1,1 @@
+coucou c'est moi, j'apprends les base de l'informatique, et un jour je serai un bon developpeur !!! non c'est une blague !!
